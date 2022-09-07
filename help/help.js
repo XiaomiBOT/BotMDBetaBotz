@@ -468,5 +468,5 @@ Atau kalian juga bisa donasi melalui QRis diatas.
 Terima kasih!
 
 Contact person Owner:
-wa.me/6285745409270 (Owner)`
+wa.me/6285779150501 (Owner)`
 }
